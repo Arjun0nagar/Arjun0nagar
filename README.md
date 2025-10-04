@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Arjun0nagar
 - 👀 I’m interested in freelancing
-- 🌱 I’m currently learning cpp
-- 💞️ I’m looking to collaborate on any projet
+- 💞️ I’m looking to collaborate on any project
 - 📫 reach me on arjunnagar012@gmail.com
 - I am a student 
 
