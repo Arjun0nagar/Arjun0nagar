@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Arjun0nagar
+- 👋 Hi, I’m @Arjxnnagar
 - 👀 I’m interested in freelancing
 - 💞️ I’m looking to collaborate on any project
 - 📫 reach me on arjunnagar012@gmail.com
